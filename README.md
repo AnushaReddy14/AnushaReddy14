@@ -30,7 +30,7 @@ I’m looking to collaborate on projects that focus on **real-time data processi
 - **Email**: [yarrasanianusha149@gmail.com](mailto:yarrasanianusha149@gmail.com)  
 - **Phone**: +1 (936) 668 1939  
 - **LinkedIn**: [linkedin.com/in/anushareddy149](https://www.linkedin.com/in/anushareddy149/)  
-- **GitHub**: [github.com/AnushaYarrasani](#) *(Add your GitHub link here)*  
+- **Portfolio**: https://www.canva.com/design/DAGXDAi5qzI/RaFOiZzCq7GdUR5UgFyLpQ/view?utm_content=DAGXDAi5qzI&utm_campaign=designshare&utm_medium=link&utm_source=editor 
 
 ---
 
